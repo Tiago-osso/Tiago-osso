@@ -1,18 +1,18 @@
+## boas vindas ao meu perfil
+-estou comesaodo na progamaçao
+-e compatilho meus estudos aqui e vejo os estudos dos outros
+
+
+
 ## oi meu nome é Tiago 👍
 
 
 **Tiago-osso/Tiago-osso** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
+
 - 😄 pronome : aviao
-- ⚡ Fun fact: ...
+- ⚡ curiozidade:gosto de souls laike e aprende sobr2e (fisica, portugues, matematica e quimica
 
 ![](https://media.tenor.com/mXuZtbI-Qm0AAAAi/pato.gif)
 
