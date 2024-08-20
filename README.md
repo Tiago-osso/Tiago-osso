@@ -12,7 +12,7 @@
 
 
 - 😄 pronome : aviao
-- ⚡ curiozidade:gosto de souls laike e aprende sobr2e (fisica, portugues, matematica e quimica
+- ⚡ curiozidade:gosto de souls laike e aprende sobre (fisica, portugues, matematica e quimica)
 
 ![](https://media.tenor.com/mXuZtbI-Qm0AAAAi/pato.gif)
 
